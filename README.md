@@ -1,2 +1,2 @@
-# hot
+# Hot
 adult content
